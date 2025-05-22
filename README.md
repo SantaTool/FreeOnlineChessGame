@@ -1,1 +1,1 @@
-# Fun Online Chess Game Free
+# Play Online Chess game for Fun and Friendly match
